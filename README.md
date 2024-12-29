@@ -1,0 +1,1 @@
+# RuletaBand1d0s
